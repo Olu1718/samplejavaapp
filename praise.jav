@@ -1,1 +1,0 @@
-add praise.jav
